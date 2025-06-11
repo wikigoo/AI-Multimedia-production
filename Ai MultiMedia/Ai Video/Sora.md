@@ -1,3 +1,0 @@
-```
-Hyper-realistic, cinematic shot of A dramatic scene showing a radiant beam of light descending from the heavens, piercing through a dark sky filled with soft clouds. Within the light, high above, is a glowing silhouette suspended in the sky, emanating peace and authority. Below, a diverse group of people—youthful silhouettes—stand together, gazing upward toward the light in awe and wonder. The surrounding environment is dim, emphasizing the contrast between the darkness and the divine light. The atmosphere is powerful and reverent, symbolizing hope, truth, and the arrival of light in the midst of darkness, inspired by John 16-9
-```
